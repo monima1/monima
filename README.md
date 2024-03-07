@@ -4,7 +4,7 @@
 
 
 
-Gifts for subscribing to our newsletter: Stay up to date with all the news and . [`promotions`]();
+Gifts for subscribing to our newsletter: Stay up to date with all the news and . [`promotions`](https://realslots.app/);
 
 More than just games: Join a community of gamers.
 
